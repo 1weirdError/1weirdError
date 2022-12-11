@@ -1,6 +1,7 @@
-> Name: Error/Charon
+> Name! Error/Charon
 > 
-> Pronouns: Neopronouns[ask me] + They/He
+> Pronouns! Neopronouns[ask me] + They/He
 
 
-**꒰Full Introduction꒱** https://weirderror.carrd.co/ ↷
+
+**꒰Full Introduction!꒱** https://weirderror.carrd.co/ ↷
